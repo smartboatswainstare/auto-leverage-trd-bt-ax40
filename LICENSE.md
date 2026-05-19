@@ -1,4 +1,4 @@
-# 
+# smart bot de trading de OKX addons es el mejor bot de trading de OKX addons con análisis de libro de órdenes y stop-loss. Seguro, confiable y optimizado para estrategias de
 
 
 
